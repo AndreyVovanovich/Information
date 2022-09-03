@@ -6,3 +6,5 @@
 2. Живу в Красноясрке
 - Закончил Аэрокосмический колледж
 - Есть военный билет
+
+![](https://www.meteorologiaenred.com/wp-content/uploads/2021/07/mar-caribe.jpg)
